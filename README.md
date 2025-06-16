@@ -1,3 +1,5 @@
+如需美区苹果ID，可自行注册或直接购买-><a href="https://xiaohu837.net/buy/1" rel="nofollow">传送门点✈这里</a>
+
 # 什么是美区苹果 ID？为什么越来越多人注册？
 
 **美区 Apple ID**，就是注册地选择为“美国”的苹果账号。和中国区 Apple ID 相比，它最大的优势在于——**可以访问更多 App 和服务**。
@@ -40,4 +42,4 @@
 > **一句话总结：**  
 > 如果你想解锁 App Store 的“完整形态”，拥有一个美区 Apple ID，是入门海外数字资源的第一步。
 
-如需美区苹果ID，可自行注册或直接购买-><a herf="https://xiaohu837.net/buy/1">传送门</a>
+如需美区苹果ID，可自行注册或直接购买-><a href="https://xiaohu837.net/buy/1" rel="nofollow">传送门点✈这里</a>
